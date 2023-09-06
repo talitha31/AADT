@@ -1,0 +1,1 @@
+<b><i>Selvi</b></i> berkomentar: <br/>Jenis font menurutku agak kurang cocok<br/><br/>
